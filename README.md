@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BloxyGamezYT
+- 👀 I’m interested in Coding and gaming.
+- 🌱 I’m currently learning how to read code
+- 💞️ I’m looking to collaborate on not much right now.
+- 📫 For business inquiries: caelanfindlan55@gmail.com
